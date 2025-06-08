@@ -6,6 +6,7 @@
 
 - [70 Temperance Street + parking ($2300 ~ $2700) (15 min)](https://rentals.ca/toronto/70-temperance-street-id1016269)
 - [51 Lower Simcoe Street -($2400) (5 min)](https://rentals.ca/toronto/325-51-lower-simcoe-street)
+- [8 The Esplanade Boulevard ($2700) (11 min)](https://rentals.ca/toronto/5406-8-the-esplanade-boulevard)
 - [290 Adelaide Street West ($2900) (14 min)](https://rentals.ca/toronto/290-adelaide-street-west-id1004911)
 - [19 Grand Trunk Crescent ($3000)](https://rentals.ca/toronto/19-grand-trunk-crescent-id997579)
 
